@@ -44,7 +44,7 @@ This dashboard helps HR professionals analyze workforce data and make data-drive
 
 ## 📞 **Contact**
 For any queries, feel free to reach out:  
-📧 Email: **inshs123@gmail.com**  
-🔗 [LinkedIn](https://www.linkedin.com/in/insha-sadaf)  
+📧 Email: **siddharthkrgupta00007@gmail.com**  
+🔗 [LinkedIn](https://www.linkedin.com/in/siddharth-kumar-gupta-869247289/)  
 
 
